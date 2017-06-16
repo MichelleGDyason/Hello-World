@@ -1,0 +1,2 @@
+# Hello-World
+in the first stages of learning what this is all about. I got here from YouTube. 2 years ago youtube had a button I could press that engaged my webcam and microphone which then allowed me to hit the upload button and presto it was posted in my youtube channel.  this has all changed now I have to download an encoder and I chose this one but it's not downloading so I need to join so here I am looking to learn something
